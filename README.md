@@ -1,0 +1,5 @@
+- 👋 Hi, I’m angeliani
+- 👀 I’m interested in accounting and finance, content writer, communication and marketing
+- 🌱 I’m currently learning in Bunda Mulia University 
+- 💞️ I’m looking to collaborate with Information Technology
+- 📫 Contact me in linkedIn @Angeliani Angeliani or email angeliani311@gmail.com
